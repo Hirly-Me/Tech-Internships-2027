@@ -4,7 +4,7 @@
 
 Open software, data, AI, security, product and design internships whose title names 2027.
 
-**1,336 open jobs** match this list today; the newest 250 are below, newest first. Last updated Nov 12, 2026.
+**1,336 open jobs** match this list today; the newest 250 are below, newest first. Last updated Nov 13, 2026.
 
 > **Get matched to these jobs.** Upload your resume on [hirly](https://hirly.me/?utm_source=github&utm_medium=joblist&utm_campaign=tech-internships-2027&utm_content=cta) to see how it matches roles like these.
 
